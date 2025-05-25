@@ -1,4 +1,4 @@
-# Avantika Penumarty
+# Avantikka Penumarty
 
 Founder, Zero2DataEngineer  
 Ex-Meta | Ex-Walmart | Ex-Marriott  
